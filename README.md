@@ -1,5 +1,7 @@
 # Cuộc thi The EconomAIst
 
+![(https://scontent.fhan14-1.fna.fbcdn.net/v/t39.30808-6/457552395_490799413656366_5728526069618961116_n.jpg?_nc_cat=105&ccb=1-7&_nc_sid=127cfc&_nc_eui2=AeFpf1vFTUA4gTCWIQVOFmW68tBAorHZLbzy0ECisdktvGJL_tVMnF6Fy5fH_l_eupZh8jUBiIXUkUKBOwKaB432&_nc_ohc=f5HnMt9IWOQQ7kNvgENYApL&_nc_ht=scontent.fhan14-1.fna&oh=00_AYB5O98g9PkftSFmtfFuSYSDqbRTbAaEZEvaHnBVqr3SoA&oe=66E4F813)]
+
 🔷 CUỘC THI **“THE ECONOMAIST”** 🔷
 
 👥 Đối tượng: Sinh viên hiện đang theo học tại các Trường Đại học/Học viện/Cao đẳng trên địa bàn Thành phố Hà Nội.
