@@ -1,6 +1,6 @@
 # Cuộc thi The EconomAIst
 
-![(https://scontent.fhan14-1.fna.fbcdn.net/v/t39.30808-6/457552395_490799413656366_5728526069618961116_n.jpg?_nc_cat=105&ccb=1-7&_nc_sid=127cfc&_nc_eui2=AeFpf1vFTUA4gTCWIQVOFmW68tBAorHZLbzy0ECisdktvGJL_tVMnF6Fy5fH_l_eupZh8jUBiIXUkUKBOwKaB432&_nc_ohc=f5HnMt9IWOQQ7kNvgENYApL&_nc_ht=scontent.fhan14-1.fna&oh=00_AYB5O98g9PkftSFmtfFuSYSDqbRTbAaEZEvaHnBVqr3SoA&oe=66E4F813)]
+![](https://scontent.fhan14-5.fna.fbcdn.net/v/t39.30808-6/457203136_490397553696552_6590576296504176958_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=833d8c&_nc_eui2=AeHj2JqFcCwfvld-XouVE_VWNOM4TGxiAjU04zhMbGICNTP4MChGFWAgW7_O6Xx1f050iWdkDGVGwfQ5V6TxUoQZ&_nc_ohc=JPAXZrhZ0lQQ7kNvgHpDkP4&_nc_ht=scontent.fhan14-5.fna&_nc_gid=AKmTFMvKHNnAbDiAcDCzOMq&oh=00_AYDz0hR1rPS8J7PXc0HlecmApzXj_QXUV8x2PFs7x6litA&oe=66E4E023)
 
 🔷 CUỘC THI **“THE ECONOMAIST”** 🔷
 
